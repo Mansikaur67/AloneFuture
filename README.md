@@ -1,0 +1,2 @@
+# AloneFuture
+Only Humanity levels
